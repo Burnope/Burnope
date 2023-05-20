@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Burnope, a newbee
+- 👀 I’m just interrested to install macOS on my NUC
+- but if i can learn other, ok
